@@ -66,3 +66,13 @@ PandaVPN提供的VPN服务价格在行业中处于平均水平，包括每月、
 PandaVPN提供超快的服务器，非常适合游戏和做直播。而且由于PandaVPN可以解锁Netflix和Hulu，对于电影迷来说，它是一个很好的选择
 
 ## [PandaVPN官网地址](https://www.panhdpe.xyz/r/22216799)
+
+## 其他好用的加速器
+
+|  加速器   | 特点  |
+|  ----  | ----  |
+| [NordVPN](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitedvpner&aff_click_id=pandajsq) | 顶级VPN品牌之一 |
+| [IvacyVPN](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitedvpner&data2=pandajsq) | 网速一流的VPN |
+| [ExpressVPN](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitedvpner&data1=pandajsq) | 顶级品牌（需翻墙后购买）|
+| [SurfShark](https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401) | 不限设备数（需翻墙后购买） |
+| [StrongVPN](https://strongtech.org/?tr_aid=5f856c291d7a8&data1=gitedvpner&data2=pandajsq) | 10月份不稳定，正在恢复中 |
