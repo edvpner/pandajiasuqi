@@ -1,8 +1,10 @@
-## panda加速器好用吗？panda加速器在哪里下载？panda加速器用起来安全吗？
+## [panda加速器](https://www.panhdpe.xyz/r/22216799)好用吗？panda加速器在哪里下载？panda加速器用起来安全吗？
 
 ![panda加速器](panda.png)
 
-### 熊猫VPN有那么好吗？它的特点是什么：
+panda加速器，又叫熊猫VPN，以下我们为大家详细介绍一下。
+
+### [熊猫VPN](https://www.panhdpe.xyz/r/22216799)有那么好吗？它的特点是什么：
 
 在60多个国家的2000多个服务器。
 256位AES加密
